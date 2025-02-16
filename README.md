@@ -1,2 +1,3 @@
-Discord: Manganian (VII) potasu#5824
+SCP-PL and Backrooms Wiki PL translator (and author).
+Discord: Manganian7potasu_
 
